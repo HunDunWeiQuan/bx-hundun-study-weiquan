@@ -17,7 +17,7 @@
 
 
 ## 加入方式
-![IMG_7155(20240122-111122)](https://github.com/HunDunWeiQuan/bx-hundun-study-weiquan/assets/157334965/7b646c0a-d0db-4f62-9a21-43925d804b59)
+QQ群：735935960
 
 
 
