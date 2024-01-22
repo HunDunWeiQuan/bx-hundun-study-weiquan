@@ -13,7 +13,7 @@
 
 ## 处理现状
 目前我们已经联系到了安顺（黄俊所在地址）的税务局，税务局已经介入调查，希望更多的受害小伙伴可以看到这个消息，加入进来。向税务局提供更多的证据，以便能更好的解决我们的问题。
-大家可以移步看带有时间线的处理情况：(https://github.com/HunDunWeiQuan/bx-hundun-study-weiquan/blob/main/%E5%A4%84%E7%90%86%E7%8E%B0%E7%8A%B6.md)[处理现状]
+大家可以移步看带有时间线的处理情况：[处理现状](https://github.com/HunDunWeiQuan/bx-hundun-study-weiquan/blob/main/%E5%A4%84%E7%90%86%E7%8E%B0%E7%8A%B6.md)
 
 
 ## 加入方式
