@@ -18,6 +18,6 @@
 
 ## 加入方式
 QQ群：735935960
+微信群：
 
-
-
+![IMG_7155(20240122-111122)](https://github.com/HunDunWeiQuan/bx-hundun-study-weiquan/assets/157334965/b6e1f33e-c0bc-4bdc-ae6c-0748783bf68f)
