@@ -18,8 +18,3 @@ github为课程资源入口，现在大家付了钱，但是找不到课程资�
 大家可以移步看带有时间线的处理情况：[处理现状](https://github.com/HunDunWeiQuan/bx-hundun-study-weiquan/blob/main/%E5%A4%84%E7%90%86%E7%8E%B0%E7%8A%B6.md)
 
 
-## 加入方式
-
-微信群：
-
-![IMG_7155(20240122-111122)](https://github.com/HunDunWeiQuan/bx-hundun-study-weiquan/assets/157334965/b6e1f33e-c0bc-4bdc-ae6c-0748783bf68f)
